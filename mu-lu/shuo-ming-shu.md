@@ -2,7 +2,7 @@
 
 分类：[目录](http://www.fcwangpu.com/help/list37.htm)    发布日期：2017-09-29     标签：
 
-<center>**非常旺铺旗舰版说明书**</center>
+**<center>非常旺铺旗舰版说明书</center>**
 
 （点击标题查看详细设置）
 
